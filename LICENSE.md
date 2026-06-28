@@ -1,4 +1,4 @@
-# 
+# مجاني degen coin sniper bot سكريبتات لـ Mac OS | جديد degen coin sniper bot سكريبتات لـ PC Windows. مع حماية وقف الخسارة و تدقيق الأمن — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
